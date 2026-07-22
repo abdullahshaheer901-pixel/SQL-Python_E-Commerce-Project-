@@ -110,7 +110,7 @@ Through this project, I learned:
 
 **Abdullah Shaheer**
 
-linkedin.com/in/abdullah-shaheer-2393a5188
+Linkedin:https://linkedin.com/in/abdullah-shaheer-2393a5188/
 
 GitHub: https://github.com/yourusername
 
